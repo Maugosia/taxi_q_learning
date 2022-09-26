@@ -1,0 +1,1 @@
+### uczenie ze wzmocnieniem 
